@@ -1,6 +1,6 @@
 # Aviator Predictor (New Updates 2026)
 
-![Aviator Predictor](https://spribe.co/assets/images/games/carousel/av-01.jpg)
+![Aviator Predictor](https://github.com/Aviator-Predictor-ux/Aviator-Predictor-ux/blob/main/2edfe912-ecbb-4ebe-b253-7cdc8796e50b.png)
 
 <h2><a href="https://t.me/Ganymed_Channel">✈️ Click Here To Download Aviator Predictor 2026!</a></h2>
 <h2><a href="https://t.me/Ganymed_Hack">⚡️ My Personal Account!</a></h2>
